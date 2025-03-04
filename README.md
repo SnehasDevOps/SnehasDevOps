@@ -28,7 +28,7 @@ When I’m not in DevOps mode, you’ll probably find me with my camera 📸, ca
 *Guilty pleasure:* I can get lost in the world of social media scrolling 📱—but I’m working on spending more time on my art and creative projects!
 
 ### Let’s Connect! 🌐
-- 📫 **Email:** [sssneha1623@gmail.com](mailto:sssneha1623@gmail.com)
+- 📫 **Email:** [soni.sneha2301@gmail.com](mailto:soni.sneha2301@gmail.com)
 
 > "Creativity meets reliability in DevOps—I'm here to make it happen."
 
