@@ -24,9 +24,6 @@ Throughout my DevOps journey, I've gained hands-on experience with a range of in
 ### Outside of DevOps 💡
 When I’m not in DevOps mode, you’ll probably find me with my camera 📸, capturing moments—from nature to cityscapes, and everything in between. Art and creativity fuel my passion, and I bring that same creativity into my DevOps work.
 
-### Fun Fact 😄
-*Guilty pleasure:* I can get lost in the world of social media scrolling 📱—but I’m working on spending more time on my art and creative projects!
-
 ### Let’s Connect! 🌐
 - 📫 **Email:** [soni.sneha2301@gmail.com](mailto:soni.sneha2301@gmail.com)
 
